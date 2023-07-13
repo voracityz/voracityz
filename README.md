@@ -1,4 +1,4 @@
-- 🦈 Hi, I’m Atlas!
+- 🦈 Hi, I’m Jade!
 - 🦈 My hobbies include playing Azur Lane, Genshin, Honkai: Star Rail, rhythm games, and more!
 - 🦈 How to reach me grapesmoooothie@gmail.com
 
