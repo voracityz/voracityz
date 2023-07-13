@@ -1,6 +1,5 @@
 - 🦈 Hi, I’m Atlas!
-- 🦈 My hobbies include playing Azur Lane, Ensemble Stars!! and more.
-- 🦈 I am a Junior in Highschool 
+- 🦈 My hobbies include playing Azur Lane, Genshin, Honkai: Star Rail, rhythm games, and more!
 - 🦈 How to reach me grapesmoooothie@gmail.com
 
 <!---
